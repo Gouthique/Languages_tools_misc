@@ -4,5 +4,6 @@ If you want to download the logos feel free to download them
 
 ```
 Note:
-All the logos rights belong to their righful owners and i have no authority of claiming them. I am Just using it for my profile
+All the logos rights belong to their righful owners and i have no authority of claiming them. 
+I am Just using it for my profile
 ```
